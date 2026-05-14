@@ -1,4 +1,4 @@
-# 
+# AI-powered Automation for meme coin sniper bot | dex-sniping & degen-coin-scanning is the best meme coin sniper bot, featuring dex-sniping and degen-coin-scanning. Fast, smart,
 
 
 
